@@ -1,5 +1,4 @@
 ## Hi I'm Aisha ✨ 
-Here are some ideas to get you started:
 
 🔭 Computer Science student at UiTM Tapah</br>
 🌱 I’m currently looking for internship for my final semester of diploma</br>
